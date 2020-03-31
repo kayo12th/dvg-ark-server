@@ -10,6 +10,7 @@
 -> http://prntscr.com/p39t9y 
 
 
+\https://steamcommunity.com/app/346110/discussions/0/1617220671495979557/
 
 
 ==============================
